@@ -1,1 +1,1 @@
-I just create  a ai model for this problems
+I just create  a Ai model for this problems    
